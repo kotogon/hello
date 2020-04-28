@@ -9,5 +9,5 @@
 4. Soute sliced pork. 
 
 ### Add Curry pasete
-1．Add curry paste to the soup.
+1. Add curry paste to the soup.
 2. Simmer well.
